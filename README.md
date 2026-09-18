@@ -1,0 +1,1 @@
+# Teorie-spikowe-panele-fotowoltaiczne-i-zegarki-AI.-
